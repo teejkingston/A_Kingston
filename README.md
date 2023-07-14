@@ -1,12 +1,11 @@
 👋 Hi, I'm Atijeh Kingston, 
-    but you can just call me Teej/Tj
+🤗 But you can just call me Teej/Tj
+🌈 Changing the world...
+💚 One code at a time.
+💻 Coding since i was knee high.
+📈 Practise makes perfect eh?
+⚡🤓 I love all things sci-fi 
 
-💫 I kind of just fell into coding and found a love for it.
+🙌 Spread LOVE not HATE 
 
-🌱 I’m currently learning Python and Azure.
 
-⚡🤓 I'm a huge fan of all things Harry Potter.
-
-🗣️ I have been told I talk excessively.
-
-FUN FACT: For those who are in the know....I used to be a metrognome. #ifyouknowyouknow
